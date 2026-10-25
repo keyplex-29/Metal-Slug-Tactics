@@ -238,4 +238,4 @@ Metal Slug Tactics is offered as a complete free version with all features and u
 Get ready to lead your pixelated team to victory! Download Metal Slug Tactics now and enjoy the full gaming experience!
 
 ---
-**Last updated:** 2026-10-24 22:59:36 UTC
+**Last updated:** 2026-10-25 01:01:44 UTC
